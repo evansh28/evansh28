@@ -16,7 +16,7 @@
 
 💬 Ask me about **Spring, React, Flutter... or anything [here](https://github.com/evansh28/evansh28/issues)**
 
-⚡ Fun fact **Game of Thrones Night's Watch cloaks are made from Ikea rugs**
+⚡ Fun fact **Goku Only Killed Two People Throughout the Series**
 
  </div>
  
